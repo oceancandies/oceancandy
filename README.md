@@ -1,6 +1,9 @@
 # oceancandy
 
 
+
+<img width="1008" alt="image" src="https://github.com/user-attachments/assets/57755c66-8615-487b-bc2e-e3d6991c7474" />
+
 ![image](https://github.com/user-attachments/assets/8b8350b8-8df4-448b-927e-d85dbaba7717)
 
 
