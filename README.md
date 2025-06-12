@@ -1,5 +1,13 @@
 # oceancandy
 
+<img width="362" alt="text truncate" src="https://github.com/user-attachments/assets/eacde850-b9de-4eba-b0ef-97fd2156eba0" />
+
+<img width="364" alt="text truncate" src="https://github.com/user-attachments/assets/7ff3db7b-4880-4ad4-81d6-971762e2d250" />
+
+<img width="362" alt="text selection color" src="https://github.com/user-attachments/assets/d8b62832-b2d7-4e5d-a5b3-9531018ed683" />
+
+
+
 <img width="588" alt="image" src="https://github.com/user-attachments/assets/031d2a33-e457-4ad4-ade4-442b33bb80d9" />
 
 
