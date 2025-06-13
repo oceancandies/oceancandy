@@ -1,5 +1,8 @@
 # oceancandy
 
+![image](https://github.com/user-attachments/assets/4854025e-f13e-4744-bd5b-e69e36f2732a)
+
+
 ![image](https://github.com/user-attachments/assets/dc70db7d-6239-42be-bb7f-d2399897ecf5)
 
 
