@@ -1,5 +1,8 @@
 # oceancandy
 
+![Brazilian Wood Plant](https://github.com/user-attachments/assets/ca6391d0-2406-4f2b-a3f0-6ddb385d5208)
+
+
 ![image](https://github.com/user-attachments/assets/4854025e-f13e-4744-bd5b-e69e36f2732a)
 
 
