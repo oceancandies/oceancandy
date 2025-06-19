@@ -1,5 +1,7 @@
 # oceancandy
 
+![Container in react native](https://github.com/user-attachments/assets/60af1ee0-6935-41e0-b488-b9603a92a0c7)
+
 
 ![ZZ Plant](https://github.com/user-attachments/assets/b03d441b-75f9-4047-a2fd-c8dc46d1cb95)
 
