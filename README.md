@@ -1,5 +1,9 @@
 # oceancandy
 
+
+![ZZ Plant](https://github.com/user-attachments/assets/b03d441b-75f9-4047-a2fd-c8dc46d1cb95)
+
+
 ![Brazilian Wood Plant](https://github.com/user-attachments/assets/ca6391d0-2406-4f2b-a3f0-6ddb385d5208)
 
 
